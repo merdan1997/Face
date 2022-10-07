@@ -8,6 +8,6 @@ https://www.youtube.com/watch?v=UhWMC5rSYmA&list=PL2g_5adpoaeKqqgYek-Ql0VKJ-ry46
 
 I'm Pooya Mohammadi and you can contact me from one of the following ways:
 
-LinkedIn: https://linkedin.com/in/pooya-mohammadi
 
-email: pooyamohammadikazaj@gmail.com
+
+
